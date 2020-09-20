@@ -1,5 +1,3 @@
-# Cultural-Transfers-I
-
 # Ophelia Norris Academic Profile
 
 Ophelia Norris is an RMA student of Medieval History at Utrecht University. Previously, she obtained her History BA at King’s College, London, and focused on Merovingian Francia. She now works primarily on Late Antiquity and the early Middle Ages, mostly in Western Europe, and especially in Francia. 
